@@ -1,0 +1,1 @@
+![image of class war](https://www.no-gods-no-masters.com/images_designs/no-war-but-class-war-d0012330886.jpg)
