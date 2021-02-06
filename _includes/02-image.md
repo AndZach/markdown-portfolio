@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![image of class war](https://www.no-gods-no-masters.com/images_designs/no-war-but-class-war-d0012330886.jpg)
