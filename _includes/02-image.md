@@ -1,1 +1,1 @@
-![image of git&GitHub logo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmorioh.com%2Fp%2F44ff44c19c6e&psig=AOvVaw0-GuAbQRyR564zUIYiMlqg&ust=1612720000526000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCJCcz7Do1e4CFQAAAAAdAAAAABAD)
+![image of git&GitHub logo](https://www.freecodecamp.org/news/content/images/size/w2000/2019/11/cover-pic.jpeg)
